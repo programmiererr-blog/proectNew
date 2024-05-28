@@ -1,0 +1,2 @@
+# proectNew
+Yangi loyiha
